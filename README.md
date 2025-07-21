@@ -61,8 +61,7 @@ Hi! I'm a versatile Quality Assurance Tester with over two years of experience r
 
 ## 📬 Contact
 
-- **LinkedIn**: [linkedin.com/in/rohan-aggarwal](https://www.linkedin.com/in/rohan-aggarwal) *(link to be customized)*  
-- **Email**: emailid@xemail.com  
+- **LinkedIn**: [linkedin.com/in/rohan-aggarwal](www.linkedin.com/in/rohan-aggarwal-910b96231)   
 - **Languages**: English (IELTS 8.0), Hindi, Punjabi, and learning French 🇫🇷  
 
 ---
